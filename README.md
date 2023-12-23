@@ -1,1 +1,1 @@
-ifi you are scared for any vιrus open it on dnspy :]
+If you are scared for any vιrus open it on dnspy :]
